@@ -1,0 +1,1 @@
+Boa tarde nova contratada da Avanade!
